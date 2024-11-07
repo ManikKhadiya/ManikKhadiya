@@ -15,6 +15,7 @@
       Python
       HTML, CSS, JS, SQL, PHP
       Maven, Docker
+      Haskell
   
 - 💞️ I’m looking to collaborate on:
       anything I can learn from
