@@ -2,7 +2,7 @@
   
 - 👀 I’m interested in:
       Motorbikes
-      MMA(Muay Thai), Gym, Rugby, Roller Derby
+      MMA(Muay Thai), Gym, Rugby, Roller Derby, Indoors Bouldering, Alpine Mountaineering
       Investing (Stocks, Crypto, FOREX)
       Reading
   
