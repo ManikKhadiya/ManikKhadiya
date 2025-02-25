@@ -21,6 +21,7 @@
       anything I can learn from
   
 - 📫 How to reach me:
+      LinkedIn: https://www.linkedin.com/in/manik-khadiya-4b8050185/
       IG: manik.khadiya_05
       SC: manik.khadiya05
 
